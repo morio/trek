@@ -13,4 +13,5 @@ Long term
 Small twin prop
 Jet
 
-
+emergency funds is $4k.
+Plus what I have left from work.
